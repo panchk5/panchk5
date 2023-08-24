@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there. Im Krish. Here is the stuff I worked on so far. Hope you like it!👋
 
 
 <!--
